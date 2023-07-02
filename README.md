@@ -1,1 +1,1 @@
-# rsschool-cv-Q2
+# rsschool-cv

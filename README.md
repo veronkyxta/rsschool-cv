@@ -1,1 +1,1 @@
-# rsschool-cv-Q2
+https://veronkyxta.github.io/rsschool-cv/cv
